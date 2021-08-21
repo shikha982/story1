@@ -6,4 +6,8 @@
                     Stage 2
    One day they decided to compete with each other.
    Whosoever will reach the clifftop first will be 
-   declared the winner.                 
+   declared the winner.
+
+                    stage 3
+
+         hi!! hw r u?                            
